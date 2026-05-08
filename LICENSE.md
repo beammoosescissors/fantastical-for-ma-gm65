@@ -1,4 +1,4 @@
-
+Fantastical for macOS elite Addon: calendar integration & version history is the best Fantastical for macOS addon, featuring calendar integration and version history. Safe,
 
 
 
